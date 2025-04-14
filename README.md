@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **krsurajshaw17082004@gmail.com**
 
-- 📄 Know about my experiences [https://hungry-buddy.vercel.app/](https://hungry-buddy.vercel.app/)
+- 📄 Know about my experiences [Download Resume]([https://drive.google.com/uc?export=download&id=1A2B3C4D5E6F7G8H9](https://drive.google.com/file/d/1udkcusoVdfaOA_wHCxrRuhECvWhbFk0f/view?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
